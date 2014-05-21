@@ -1,3 +1,5 @@
+Ingredients
+-----------
 1 cup yogurt
 4 tbsp mango pulp
 4 tsp sugar
